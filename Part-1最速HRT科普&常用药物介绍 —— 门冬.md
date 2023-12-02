@@ -14,11 +14,11 @@
 
 补佳乐     （戊酸雌二醇片）（EV）
 
-<img title="" src="file:///https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/10001.jpg" alt="1" width="351">
+<img title="" src="https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/10001.jpg" alt="1" width="351">
 
  Estrofem©     （17β雌二醇）    （诺坤复）
 
-<img title="" src="file:///https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/estrofem.png" alt="1" width="383">
+<img title="" src="https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/estrofem.png" alt="1" width="383">
 
 克龄蒙     （戊酸雌二醇片/雌二醇环丙孕酮复合包装）
 
@@ -26,7 +26,7 @@
 
 色普龙     （醋酸环丙孕酮）（CPA）
 
-<img title="" src="file:///https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/huadian.jpg" alt="1" width="280">
+<img title="" src="https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/huadian.jpg" alt="1" width="280">
 
 - 商品名：华典®
 - 简称：国色
@@ -46,7 +46,7 @@
 
 安体舒通 （螺内酯）            （Spironolactone）
 
-<img src="file:///https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/202262913561942!500x500.jpg" title="" alt="1" width="332">
+<img src="https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/202262913561942!500x500.jpg" title="" alt="1" width="332">
 
 ## 
 
@@ -66,11 +66,11 @@ Oestrogel®     （17β雌二醇）   （爱斯妥）    
 
 泰雌    （苯甲酸雌二醇注射剂）    
 
-<img title="" src="file:///https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/FIUWKWXVQAI5gIT-1.jpg" alt="1" width="299"> 5mg / 1ml<img title="" src="file:///C:/Users/AM/Desktop/img/10003.jpg" alt="1" width="300"> 4mg / 2ml
+<img title="" src="https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/FIUWKWXVQAI5gIT-1.jpg" alt="1" width="299"> 5mg / 1ml<img title="" src="C:/Users/AM/Desktop/img/10003.jpg" alt="1" width="300"> 4mg / 2ml
 
 日雌    （戊酸雌二醇注射剂）    
 
-<img src="file:///https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/progynon-depot.jpg" title="" alt="1" width="369">
+<img src="https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/progynon-depot.jpg" title="" alt="1" width="369">
 
 - 英文名称：Progynon®-Depot intramuscular injection
 - 日文名称：プロギノン ®・デポー筋注10mg
@@ -96,4 +96,4 @@ Oestrogel®     （17β雌二醇）   （爱斯妥）    
 
 # Shizu's HRT Guide
 
-                  <img title="" src="file:///https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/shizu.png" alt="1" width="128">
+                  <img title="" src="https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/shizu.png" alt="1" width="128">
