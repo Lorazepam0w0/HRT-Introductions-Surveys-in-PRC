@@ -2,7 +2,7 @@
 
 ## 跨性别激素代替疗法 (Transfem HRT)
 
-![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\屏幕截图%202023-11-19%20115040.png)
+![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/屏幕截图%202023-11-19%20115040.png)
 
 跨性别 HRT 的目的是为了女性化以及去男性化来缓解性别焦虑症 (gender dysphoria). 为跨性别女性提供性激素药物、孕激素类药物、抗雄激素药物等来取代体内原有的激素，把体内的激素转换成女性的激素水平状态.
 
@@ -22,7 +22,7 @@
 
 克龄蒙     （戊酸雌二醇片/雌二醇环丙孕酮复合包装）
 
-![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\10003.png)
+![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/10003.png)
 
 色普龙     （醋酸环丙孕酮）（CPA）
 
@@ -34,9 +34,9 @@
 - 批准文号：国药准字 H20056637
 - 规格：50mg × 24 片
 
-![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\download.jpg)    50MG
+![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/download.jpg)    50MG
 
-![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\12222.jpeg)    100MG
+![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/12222.jpeg)    100MG
 
 - 商品名：Androcur®
 - 简称：土色、台色（在台湾销售的 Androcur）
@@ -54,11 +54,11 @@
 
 Oestrogel®     （17β雌二醇）   （爱斯妥）    
 
-![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\100011.jpg)
+![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/100011.jpg)
 
 国产凝胶
 
-![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\100021.jpg)
+![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/100021.jpg)
 
 
 
@@ -86,13 +86,13 @@ Oestrogel®     （17β雌二醇）   （爱斯妥）    
 
 遵守CC －BY－SA共享协议
 
-![１](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\10006.png)
+![１](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/10006.png)
 
 # 特别鸣谢
 
 ![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/10004.svg)
 
-![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img\10005.svg)
+![1](https://github.com/Lorazepam0w0/HRT-Introductions-Surveys-in-PRC/blob/main/img/10005.svg)
 
 # Shizu's HRT Guide
 
